@@ -1,4 +1,4 @@
-# 
+# instant Shotcut for PC | Shotcut for Windows Transition | audio-sync + batch-processing offers the most advanced Shotcut for PC | Shotcut for Windows transition, with audio-sync
 
 
 
